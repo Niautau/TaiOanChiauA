@@ -1,6 +1,6 @@
 # Configurations
-title:            《台灣俗語鹹酸甜第1冊》
-longtitle:        Tâi-oân Sio̍k-gí Kiâm-sng-tiⁿ (台灣俗語鹹酸甜)
+title:            《台灣鳥仔》
+longtitle:        Tâi-oân chiáu-á (台灣鳥仔)
 author:           Siau Lah-jih
 email:            tzuhua818@gmail.com
 description: >
@@ -10,7 +10,7 @@ version:          0.1
 gitbook_version:  3.2.3
 
 url:              ''
-baseurl:          'https://siaulahjih.github.io/KiamSngTinn1'
+baseurl:          'https://siaulahjih.github.io/TaiOanChiauA'
 rss:              RSS
 
 toc:
