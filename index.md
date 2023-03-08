@@ -8,11 +8,9 @@ layout: home
 
 Chit ê網站是為tio̍h **Siau Lah-jih（蕭平治）**先生ê著作**《Hêng góa Tâi-oân Chiáu-á Miâ（還我台灣鳥á名）》**來設--ê。
 
-Siau Lah-jih（蕭平治）先生chit本著作ê內容實在是不止á豐沛，mā是台灣人寶貴ê語言kap文化資產。伊一直真khòa心，向望chia ê智識有機會thang ka thn̂g--lo̍h-去。所致，伊決定將chit本冊，完整公開tī網路頂koân。
-
 > 特別感謝Lah-jih兄，做台語文長期ê實踐者，koh無私奉獻伊ê智識。
 
-邀請大家做伙來讀台文，讀台灣俗語鹹酸甜，了解咱祖先ê人生智慧！
+邀請大家做夥來讀《還我台灣鳥á名》，欣賞台灣鳥á ê súi-tang-tang kap台灣鳥á ê在地名。
 
 ## 版權告白
 * 本網站內底ê內容著作權屬原作者 Siau Lah-jih（蕭平治）先生。
