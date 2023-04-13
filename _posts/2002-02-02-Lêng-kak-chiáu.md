@@ -1,5 +1,5 @@
 ---
-chapter: Chúi-thī/tī kho『水雉科』
+chapter: Chúi-thī／tī kho『水雉科』
 title: 14-1. Lêng-kak-chiáu（菱角鳥）
 author: Siau Lah-jih
 date: 2002-02-02
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 14. Chúi-thī/tī kho『水雉科』
+#### 14. Chúi-thī／tī kho『水雉科』
 
 |台灣名|中譯名|學名|
 |Lêng-kak-chiáu（菱角鳥）|水雉|Hydrophasianus chirurgus|
