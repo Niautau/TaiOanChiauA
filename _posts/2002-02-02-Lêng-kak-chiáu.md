@@ -33,6 +33,22 @@ Lêng-kak-chiáu hèng食水內動物幼蟲，水蛙、蝌蚪ām-oaiⁿ-á、蜘
 
 
 
+# 【Tâi-oân Chiáu-á Liām Koa-si】
+
+### **Lêng-kak-chiáu Chiâⁿ Pún-téng**
+
+
+Lêng-kak-chiáu-á chiâⁿ pún-téng
+
+Tiàm tī lêng-kak hio̍h téng chhia-poa̍h-péng
+
+Chiáu-bó sì-kè hong-hoa kò͘ seⁿ-nn̄g
+
+Chiáu-kang pū-nn̄g chhōa-kiáⁿ ū chek-jīm
+
+It chhe to hu chū-jiân seⁿ-chiâⁿ bô gī-lūn
+
+
 ![](../too5/14/14-1-3.Lêng-kak-chiáu.jpg)
 ![](../too5/14/14-1-2.Lêng-kak-chiáu.jpg)
 ![](../too5/14/14-1-6.Lêng-kak-chiáu.jpg)
