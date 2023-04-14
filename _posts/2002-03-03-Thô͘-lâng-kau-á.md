@@ -28,4 +28,4 @@ Thô͘-lâng-kau-á（Numenius arquata），是台灣ê過冬鳥，i有chúi-chi
 
 Thô͘-lâng-kau-á（Numenius arquata），是giōng-boeh絕種ê鳥類。
 
-
+![](../too5/15/15-4-2.土礱鉤á.jpg)
