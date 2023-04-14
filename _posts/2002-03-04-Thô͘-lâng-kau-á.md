@@ -1,6 +1,6 @@
 ---
 chapter: U̍t kho『鷸科』
-title: 15-4. Thô͘-lâng-kau-á（土礱鉤á）15-2. Chio̍h-sai（石獅）
+title: 15-4. Thô͘-lâng-kau-á（土礱鉤á）
 author: Siau Lah-jih
 date: 2002-03-04
 category: chheh
