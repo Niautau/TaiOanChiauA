@@ -59,7 +59,7 @@ Ta̍k-ji̍t kho͘-si-á hō͘ goán thiaⁿ
 |Hóe-sio-tó|『台東縣綠島』。|
 |Âng-thâu-sū|『台東縣蘭嶼』。|
 |thô͘-pi-á|『陶笛』。|
-|ka-chui|『斑鳩』。|
+|ka-chui|『綠鳩』。|
 
 
 
