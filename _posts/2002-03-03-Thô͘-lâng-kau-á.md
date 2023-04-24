@@ -17,6 +17,9 @@ toc: true
 
 # 15-3. Thô͘-lâng-kau-á（土礱鉤á）
 
+![](../too5/15/15-3-2.Thô͘-lâng-kau-á.jpg)
+
+
 
 Thô͘-lâng-kau-á ê嘴pe長長，尾á勾勾，kài sêng古早時代挨粟á ê土礱勾á。
 
@@ -28,4 +31,8 @@ Thô͘-lâng-kau-á（Numenius arquata），是台灣ê過冬鳥，i有chúi-chi
 
 Thô͘-lâng-kau-á（Numenius arquata），是giōng-boeh絕種ê鳥類。
 
+
+![](../too5/15/15-3-1.Thô͘-lâng-kau-á.jpg)
+![](../too5/15/15-3-3.Thô͘-lâng-kau-á.jpg)
 ![](../too5/15/15-4-2.土礱鉤á.jpg)
+
