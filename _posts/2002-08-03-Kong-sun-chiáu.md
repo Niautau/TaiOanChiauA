@@ -27,7 +27,7 @@ toc: true
 
 另外chi̍t-ê傳說：「古早有兩ê公孫á，saⁿ-i-óa做夥生活，有一工為tio̍h掘竹筍止iau，soah hō͘人thâi死，chū-án-ne化做兩隻公孫鳥，每年春天新筍nā出，to̍h四界哀怨啼哭公孫！公孫！公孫！Háu無停。」
 
-Kong-sun-chiáu mā叫做穀雨鳥，in tī每年穀雨節氣時，也 to̍h是陽曆四月二十日a̍h是二十一日一定àn時出現háu 叫。作田人聽tio̍h穀雨鳥ê叫聲，to̍h知影穀雨到--à，ē-sái-tit種豆á，所以有穀雨鳥ê名。「清明麻，穀雨豆」to̍h是講清明種麻á，穀雨種豆á，siāng chiàⁿ-pān。 
+Kong-sun-chiáu mā叫做穀雨鳥，in tī每年穀雨節氣時，也to̍h是陽曆四月二十日a̍h是二十一日一定àn時出現háu叫。作田人聽tio̍h穀雨鳥ê叫聲，to̍h知影穀雨到--à，ē-sái-tit種豆á，所以有穀雨鳥ê名。「清明麻，穀雨豆」to̍h是講清明種麻á，穀雨種豆á，siāng chiàⁿ-pān。 
 
 Kong-sun-chiáu ê叫聲「koko koko koko koko」，比pò͘-kok khah細聲khah低音。
 
