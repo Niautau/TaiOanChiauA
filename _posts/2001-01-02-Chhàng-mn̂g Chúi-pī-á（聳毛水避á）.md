@@ -34,7 +34,7 @@ Ang-bó͘ sio-chio thiàu oa-lú-chuh
 
 Thn̂g kam bi̍t tiⁿ
 
-Thâu-mn̂g chàng-chhàng ū-kàu phāⁿ
+Thâu-mn̂g chhàng-chhàng ū-kàu phāⁿ
 
 Siâⁿ lâng lâi him-siúⁿ
 
