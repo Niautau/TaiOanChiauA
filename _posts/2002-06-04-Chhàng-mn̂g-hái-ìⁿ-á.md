@@ -58,7 +58,7 @@ Chin gâu poe
 ![](../too5/18/18-4-8.聳毛海燕á.jpg)
 
 
-馬祖ê縣鳥，「烏嘴尾鳳頭燕鷗Thalasseus bernsteini」
+馬祖ê縣鳥，「烏嘴尾鳳頭燕鷗Thalasseus bernsteini」。
 ![](../too5/18/18-4-9.聳毛海燕á.jpg)
 
 
