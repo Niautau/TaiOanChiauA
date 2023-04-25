@@ -1,6 +1,6 @@
 ---
 chapter: Chhi-go̍k kho『鴟鶚科』
-title: 22-3. Niau-thâu-chiáu（貓頭鳥）—— 褐鷹鴞
+title: 22-3. Niau-thâu-chiáu（貓頭鳥）— 褐鷹鴞
 author: Siau Lah-jih
 date: 2002-10-03
 category: chheh
