@@ -68,13 +68,13 @@ Niau-thâu-chiáu, lí sī-m̄-sī teh chhōe a-ko͘-á
 
 
 
-### 貓頭鷹報喜ê故事
+### 貓頭鳥報喜ê故事
 
-這是日月潭所在Thao ê神話，in一直相信貓頭鷹是來報喜事ê靈鳥，而且禁止lia̍h殺。
+這是日月潭所在Thao ê神話，in一直相信貓頭鳥是來報喜事ê靈鳥，而且禁止lia̍h殺。
 
 古早古早，Thao族ê部落內，有chi̍t-ê真súi ê少女，伊iáu未結婚to̍h有身--a，chū-án-ne hō͘ in父母kap族人責備táⁿ-tia̍p，伊無法度忍受，to̍h趁chi̍t-ê暗暝偷偷á離開in tau。
 
-Kúi-nā工後，有一位族人tī山內phah獵，發現chit ê cha-bó͘-gín-á死tī路邊，而且漸漸變成一隻貓頭鷹。日子一工一工過去，族人也漸漸bē記得chit ê少女。
+Kúi-nā工後，有一位族人tī山內phah獵，發現chit ê cha-bó͘-gín-á死tī路邊，而且漸漸變成一隻貓頭鳥。日子一工一工過去，族人也漸漸bē記得chit ê少女。
 
 有一工暗時，部落內有chi̍t-ê婦jîn人，眠夢一隻貓頭鳥當面kā伊講：「你boeh做老母--à！」隔轉工，chit ê cha-bó͘-lâng tī潭á邊洗衫，ta̍k ê閒閒phò-tāu開講中間，chiah發現，原來有真chē人tī懷胎有身中間，lóng bat做過kāng-khoán ê眠夢，而且隔轉工to̍h有一隻貓頭鳥，tiām-tiām khiā tī厝前ê樹á尾頂，親像leh kā人講有好消息boeh報人知ê款。
 
