@@ -1,6 +1,6 @@
 ---
 chapter: Chhi-go̍k kho『鴟鶚科』
-title: 22-1. Niau-thâu-chiáu（貓頭鳥）
+title: 22-1. Niau-thâu-chiáu（貓頭鳥）—— 鴟鶚
 author: Siau Lah-jih
 date: 2002-10-01
 category: chheh
