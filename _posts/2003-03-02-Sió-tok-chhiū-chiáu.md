@@ -15,7 +15,7 @@ toc: true
 |台灣名|中譯名|學名|
 |Sió-tok-chhiū-chiáu（小啄樹鳥）|小啄木|Yungipicus canicapillus kaleensis|
 
-# 27-2. Sió-tok-chhiū-chiáu（小啄樹鳥）
+## 27-2. Sió-tok-chhiū-chiáu（小啄樹鳥）
 
 ![](../too5/27/27-2-3.Sió-tok-chhiū-chiáu.jpg)
 
