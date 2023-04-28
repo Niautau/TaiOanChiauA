@@ -35,5 +35,13 @@ Bōng-khòng-chiáu ê羽冠像展開ê葵扇，嘴pe尖koh長，sió-khóa khi�
 ![](../too5/25/25-1-1.Bōng-khòng-chiáu.jpg)
 ![](../too5/25/25-1-2.Bōng-khòng-chiáu.jpg)
 ![](../too5/25/25-1-5.Bōng-khòng-chiáu.jpg)
-
+![](../too5/25/25-1-8.Bōng-khòng-chiáu.jpg)
+![](../too5/25/25-1-9.Bōng-khòng-chiáu.jpg)
+![](../too5/25/25-1-10.Bōng-khòng-chiáu.jpg)
+![](../too5/25/25-1-11.Bōng-khòng-chiáu.jpg)
+![](../too5/25/25-1-12.Bōng-khòng-chiáu.jpg)
+![](../too5/25/25-1-13.Bōng-khòng-chiáu.jpg)
+![](../too5/25/25-1-14.Bōng-khòng-chiáu.jpg)
+![](../too5/25/25-1-15.Bōng-khòng-chiáu.jpg)
+![](../too5/25/25-1-16.Bōng-khòng-chiáu.jpg)
 
