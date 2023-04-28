@@ -34,6 +34,10 @@ Sió-tok-chhiū-chiáu kah意khi̍p tiàm樹椏chhōe蟲食，是有名ê樹醫�
 ![](../too5/27/27-2-1.Sió-tok-chhiū-chiáu.jpg)
 ![](../too5/27/27-2-4.Sió-tok-chhiū-chiáu.jpg)
 ![](../too5/27/27-2-5.Sió-tok-chhiū-chiáu.jpg)
+![](../too5/27/27-2-11.Sió-tok-chhiū-chiáu.jpg)
+![](../too5/27/27-2-10.Sió-tok-chhiū-chiáu.jpg)
+![](../too5/27/27-2-9.Sió-tok-chhiū-chiáu.jpg)
+![](../too5/27/27-2-8.Sió-tok-chhiū-chiáu.jpg)
 
 
 
