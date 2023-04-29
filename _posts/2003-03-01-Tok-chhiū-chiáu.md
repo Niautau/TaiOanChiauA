@@ -20,7 +20,7 @@ toc: true
 
 Tok-chhiū-chiáu有法度用聽覺聽樹kho͘內蛀蟲，nā發現樹kho͘內有雞母蟲a̍h是白蟻，i to̍h挖皮啄khang，kā蟲啄出來食。
 
-Tok-chhiū-chiáu chhōe蛀蟲kap剝樹皮ê效率chiâⁿ強，實在hō͘人想bē到，效率好，mā chiâⁿ gâu食。伊ê嘴pe 尖koh tēng，非常有力，嘴舌特別長，尾羽ngē-chiāⁿ，貼tiàm 樹椏，有固定穩定鳥身ê作用，腳爪前後各兩爪，lóng真尖，後爪ē-sái-tit lia̍h坦橫，防止身軀邊搖來搖去。
+Tok-chhiū-chiáu chhōe蛀蟲kap剝樹皮ê效率chiâⁿ強，實在hō͘人想bē到，效率好，mā chiâⁿ gâu食。伊ê嘴pe尖koh tēng，非常有力，嘴舌特別長，尾羽ngē-chiāⁿ，貼tiàm樹椏，有固定穩定鳥身ê作用，腳爪前後各兩爪，lóng真尖，後爪ē-sái-tit lia̍h坦橫，防止身軀邊搖來搖去。
 
 台灣ê啄樹鳥有三種，lóng是在地鳥，大赤啄木kap綠啄木分布tī中、高海拔山區；小啄木tī低海拔山區，是常常看ē tio̍h ê鳥á，通常歇tī大kho͘ ê樹椏。
 
