@@ -60,7 +60,5 @@ Ta̍k-ji̍t kho͘-si-á hō͘ goán thiaⁿ
 |Âng-thâu-sū|『台東縣蘭嶼』。|
 |thô͘-pi-á|『陶笛』。|
 |ka-chui|『綠鳩』。|
-
-
-
+|腳跡|Kha-jiah。|
 
