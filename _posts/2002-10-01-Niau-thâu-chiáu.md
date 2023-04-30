@@ -21,13 +21,13 @@ toc: true
 ![](../too5/22/22-1-1.Niau-thâu-chiáu.jpg)
 
 
-Niau-thâu-chiáu是一種猛禽，大自然強--ê提去食ê食物鏈定律是自然法則，為tio̍h生存，必須lia̍h食kap防衛，長久以來to̍h演化出am-khàm羽色kap『擬態』行為。貓頭鳥ê頭殼形態，大概分做有角羽kap無角羽兩大類，chit種角羽mā叫做耳羽，是冠羽ê 一種，m̄是耳á，因為有親像耳á ê角羽，koh配合i ê面模kap圓kùn-kùn大大蕊ê ba̍k-chiu，chiok sêng貓á頭，m̄-chiah hō͘人號做貓頭鷹a̍h是貓頭鳥。
+Niau-thâu-chiáu是一種猛禽，大自然強--ê提去食ê食物鏈定律是自然法則，為tio̍h生存，必須lia̍h食kap防衛，長久以來to̍h演化出am-khàm羽色kap『擬態』行為。貓頭鳥ê頭殼形態，大概分做有角羽kap無角羽兩大類，chit種角羽mā叫做耳羽，是冠羽ê一種，m̄是耳á，因為有親像耳á ê角羽，koh配合i ê面模kap圓kùn-kùn大大蕊ê ba̍k-chiu，chiok sêng貓á頭，m̄-chiah hō͘人號做貓頭鷹a̍h是貓頭鳥。
 
 Niau-thâu-chiáu ê頭殼，ē-tàng oa̍t 180度看後壁，腳短有力，腳爪oan-khiau尖koh lāi，ē-tàng自由chhun-kiu使用，lia̍h殺小動物非常好勢。
 
 Niau-thâu-chiáu ê鳥毛柔軟，翼股ê羽毛尾溜sió-khóa pit叉，飛行時無聲無說，tiām-chut-chut，大部分ê貓頭鳥lóng是『樹棲性』，日--時bih tiàm樹林àm-sàm所在a̍h是樹洞內歇睏。
 
-Niau-thâu-chiáu ê面型sêng貓á面，伊ê叫聲「ko͘~ko͘~」，tī恒春地帶有「姑嫂鳥」ê稱號。
+Niau-thâu-chiáu ê面型sêng貓á面，伊ê叫聲「ko͘~ ko͘~」，tī恒春地帶有「姑嫂鳥」ê稱號。
 
 
 
@@ -64,7 +64,7 @@ Niau-thâu-chiáu, lí sī-m̄-sī teh chhōe a-ko͘-á
 
 古早古早，有兄嫂細姑兩ê人，個性真bā，感情chiâⁿ好，厝內大細項tāi-chì lóng真有參詳，雙出雙入，是厝邊隔壁欣羨o-ló ê好樣。
 
-有一年春天，新筍tâⁿ出，姑嫂雙人to̍h相招boeh去社頂附近山區竹á林挖幼筍，bô-gî-gō͘ gū-tio̍h大雨，到kah暗暝兩人lóng無轉--來，厝內ê人非常tio̍h急，to̍h派人上山四界走chhōe，chhōe真久lóng chhōe無in ê腳跡，最後chhōe到一欉茄苳樹腳，kan-nā聽見兩隻鳥á tī樹á頂hia leh háu 。講mā奇怪，in tau ê人轉來到厝裡了後，猶原聽tio̍h hit兩隻鳥á「ko͘~ko͘~」háu無停，ta̍k工ùi boeh-àm-á一直háu kah天光。因為姑嫂兩人一去無回頭，所以厝內ê人nā聽tio̍h「ko͘~ko͘~」ê叫聲，to̍h想tio̍h兄嫂細姑in兩人，mā因為chit種鳥á ê叫聲「ko͘~ko͘~」kài-sêng leh叫阿姑á~阿姑á--leh，所以ta̍k ê認為有可能是姑嫂兩人ê化身，所以tī墾丁所在，貓頭鳥有「姑嫂鳥」ê稱號。
+有一年春天，新筍tâⁿ出，姑嫂雙人to̍h相招boeh去社頂附近山區竹á林挖幼筍，bô-gî-gō͘ gū-tio̍h大雨，到kah暗暝兩人lóng無轉--來，厝內ê人非常tio̍h急，to̍h派人上山四界走chhōe，chhōe真久lóng chhōe無in ê腳跡，最後chhōe到一欉茄苳樹腳，kan-nā聽見兩隻鳥á tī樹á頂hia leh háu 。講mā奇怪，in tau ê人轉來到厝裡了後，猶原聽tio̍h hit兩隻鳥á「ko͘~ ko͘~」háu無停，ta̍k工ùi boeh-àm-á一直háu kah天光。因為姑嫂兩人一去無回頭，所以厝內ê人nā聽tio̍h「ko͘~ ko͘~」ê叫聲，to̍h想tio̍h兄嫂細姑in兩人，mā因為chit種鳥á ê叫聲「ko͘~ ko͘~」kài-sêng leh叫阿姑á~ 阿姑á--leh，所以ta̍k ê認為有可能是姑嫂兩人ê化身，所以tī墾丁所在，貓頭鳥有「姑嫂鳥」ê稱號。
 
 
 
