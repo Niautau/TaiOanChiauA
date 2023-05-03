@@ -29,11 +29,8 @@ Chio̍h-eng-ko-á，tī台灣分布tī山坪到山崙地帶，低海拔山區，
 ### Pit-kho『鵯科』鳥類
 
 |Pe̍h-thâu-khok-á（白頭khok-á）|白頭翁|Pycnonotus sinensis|
-
 |O͘-thâu-khok-á（烏頭khok-á）|烏頭翁|Pycnonotus taivanus|
-
 |Âng-chhùi-pit-á（紅嘴pit-á）|紅嘴黑鵯|Hypsipetes leucocephalus|
-
 |Chio̍h-eng-ko-á（石eng-ko-á）|白環鸚嘴鵯|Spizixos semitorques|
 
 Lóng-sī台灣時常khoàiⁿ--tio̍h，in lóng kah意食肉chē有汁ê果子kap蟲thōa，gâu háu、大聲響亮、nńg-loán歌聲變化好聽，mā是特色。
