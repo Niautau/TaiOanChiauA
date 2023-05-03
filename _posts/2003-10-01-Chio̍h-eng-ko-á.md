@@ -32,7 +32,7 @@ Chio̍h-eng-ko-á，tī台灣分布tī山坪到山崙地帶，低海拔山區，
 
 |O͘-thâu-khok-á（烏頭khok-á）|烏頭翁|Pycnonotus taivanus|
 
-| ng-chhùi-pit-á（紅嘴pit-á）|紅嘴黑鵯|Hypsipetes leucocephalus|
+|Âng-chhùi-pit-á（紅嘴pit-á）|紅嘴黑鵯|Hypsipetes leucocephalus|
 
 |Chio̍h-eng-ko-á（石eng-ko-á）|白環鸚嘴鵯|Spizixos semitorques|
 
