@@ -38,7 +38,7 @@ Pe̍h-thâu-khok-á台灣亞種是在地鳥。
 ### Pe̍h-thâu-khok-á kap O͘-thâu-khok-á ê關係
 
 |O͘-thâu-khok-á（烏頭khok-á）|烏頭翁|Pycnonotus taivanus|
-|O͘-thâu-khok-á（烏頭khok-á）|烏頭翁|Pycnonotus taivanus|
+|Pe̍h-thâu-khok-á（白頭khok-á）|白頭翁|Pycnonotus sinensis|
 
 台灣特有種烏頭khok-á外形kap白頭khok-á chiâⁿ kāng-khoán，差別tī頭殼。O͘-thâu-khok-á kan-nā台東、花蓮、恆春半島有，原本chit兩種鳥á分別tòa兩位，無相交插，因為交通因素hām無妥當ê放生，sòa漸漸sio-lām雜交生湠共同特徵ê灰頭khok-á。
 
