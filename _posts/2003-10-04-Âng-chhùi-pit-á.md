@@ -69,7 +69,7 @@ Chit-mái ê Bunun族人為tio̍h感念âng-chhùi-pit-á Qepis勇敢解救in ê
 
 Chit ê時陣，kan-nā紅嘴pit-á族留--落-來，in無驚惶，心情鎮靜，有計畫有秩序，開始動員剩落來ê族群，按照山神ê指示來進行phah火ê工課，有ê開防火巷，chiah-bē hō͘火災繼續湠開；有ê利用in ê雙腳kah嘴pe，kā to̍h火ê樹枝at斷，mài hō͘ koh再to̍h--落-去，因為in ta̍k-ke m̄驚艱苦，無惜性命phah-piàⁿ phah火，最後chiah kā火phah hoa去。
 
-Tī phah火救災ê過程中間，紅嘴pit-á ê族群出siāng-chē力，siāng-kài phah-piàⁿ m̄驚死，piàⁿ命phah火，soah hō͘火舌nā kah歸身軀全是傷痕，嘴pe kah兩支腳骨燒kah紅kì-kì，其他ê羽毛mā hō͘火燻燻kah烏sô-sô，tō是親像咱chit-mái看tio̍h--ê chit款模樣，che tō是紅嘴pit-á號名ê因由。
+Tī phah火救災ê過程中間，紅嘴pit-á ê族群出siāng-chē力，siāng-kài phah-piàⁿ m̄驚死，piàⁿ命phah火，soah hō͘火舌nā kah歸身軀全是傷痕，嘴pe kah兩支腳骨燒kah紅kì-kì，其他ê羽毛mā hō͘火燻燻kah烏sô-sô，tō是親像咱chit-má看tio̍h--ê chit款模樣，che tō是紅嘴pit-á號名ê因由。
 
 因為紅嘴pit-á in ê出生入死，勇敢phah火，chiah kā一場可怕ê樹林大火消滅，保全ta̍k-ke倚靠活命ê家園。山神為tio̍h感謝紅嘴pit-á冒險phah火ê精神，tī慶功賞賜ê同時，mā加添in「phah火鳥」ê美名，koh hō͘ in ê kiáⁿ孫，世世代代lóng kah in ê祖先kāng款，嘴pe紅紅，雙腳紅紅，配合歸身軀烏金烏金ê羽毛，非常美麗。
 
