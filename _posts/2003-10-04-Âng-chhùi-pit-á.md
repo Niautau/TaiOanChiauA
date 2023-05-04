@@ -93,6 +93,12 @@ In-ūi âng-chhùi-pit-á in ê chhut seⁿ ji̍p sí, ióng-kám phah-hóe, chi
 Âng-chhùi-pit-á "phah-hóe-chiáu" ê hó-miâ-siaⁿ chū-án-ne liû-thoân kàu chit-kú.
 
 
+#### 《Phah火鳥 — Ataya紅嘴pit-á故事》
+
+- [Phah火鳥 — Ataya紅嘴pit-á故事](https://www.youtube.com/watch?v=AjyExb2ZLYo&t=6s)
+
+
+
 ### 【註解】
 
 |詞|解說|
