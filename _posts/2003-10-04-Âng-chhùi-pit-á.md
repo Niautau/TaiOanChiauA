@@ -36,7 +36,7 @@ toc: true
 ![](../too5/34/34-4-7.紅嘴pit-á.jpg)
 
 
-### **勇敢ê Qepis —— Lahjih**
+### **勇敢ê Qepis — Lahjih**
 >**Bunun âng-chhùi-pit-á ê故事**
 
 傳說太古時代，Bunun ê鄉野山區出現1尾chiok大尾ê蟒蛇，危害精牲動物，sńg-tn̄g山園果子食物，而且koh向人類挑戰，用伊ê法力kā山坑á出口nâ截，hō͘山坑á水無teh消tháu，soah ta̍k四界淹水，hō͘ Bunun ê族人無厝thang tòa，無家可歸，有夠落魄苦憐，不得已只好逃難到玉山頂，chit時火種已經hō͘水lâm hoa--去，無法度煮食，玉山頂koh寒sih-sih，無火thang烘，也iau也寒，實在無法度koh生存--落-去。
@@ -59,8 +59,7 @@ Chit-mái ê Bunun族人為tio̍h感念âng-chhùi-pit-á Qepis勇敢解救in ê
 
 
 ### 投稿【民報台語世界】版本
-
-### **Phah火鳥 —— Ataya紅嘴pit-á故事**
+### **Phah火鳥 — Ataya紅嘴pit-á故事**
 >**文、錄音／Lahjih（蕭平治） 2020-09-21 17:40**
 
 古早古早，Ataya tòa ê所在，有一工火燒山，連燒kúi-nā暝日，pān勢非常危急。樹林是鳥隻、野獸ê khiā家，內面有chiâⁿ chē食物，樹林、野草nā是燒了了，m̄但無thang歇siū，mā無thang chhōe食，嚴重威脅tio̍h in ê討食生存。顧山頭安全ê山神，趕緊召集所有飛鳥野獸ê頭人，開會決定搶救樹林火災辦法，呼籲ta̍k-ke tioh同心協力，為tio̍h ta̍k-ke安全活命，一定ài認真來phah火，m̄-thang自私驚死，kan-nā知影保護ka-tī，有「日頭赤iāⁿ-iāⁿ，隨人顧性命」ê自私心理，án-ne咱ê家鄉chiah-bē hō͘無情ê大火，燒kah孤khu̍t變成無生命力ê火燒埔。
@@ -75,9 +74,10 @@ Tī phah火救災ê過程中間，紅嘴pit-á ê族群出siāng-chē力，siān
 
 紅嘴pit-á「phah火鳥」ê好名聲自án-ne流傳到chit-kú。
 
-### 台灣字（白話字）版
 
-### **Phah-hóe-chiáu —— Ataya àng-chhùi-pit-á kò͘-sū**
+
+### 台灣字（白話字）版
+### **Phah-hóe-chiáu — Ataya àng-chhùi-pit-á kò͘-sū**
 >**Bûn, Lio̍k-im/Lahjih (Siau, Pêng Tī)**
 
 Kó͘-chá kó͘-chá, Ataya tòa ê só͘-chai, ū-chi̍t-kang hóe-sio-soaⁿ, liân sio kúi-nā mê-ji̍t, pān-sè hui-siông gûi-kip. Chhiū-nâ sī chiáu-chiah, iá-siù ê khiā-ke, lāi-bīn ū chiâⁿ-chē chia̍h-mi̍h, chhiū-nâ iá-chháu nā-sī sio-liáu-liáu, m̄-nā bô-thang hioh-siū, mā bô-thang chhōe-chia̍h, giâm-tiōng ui-hia̍p tio̍h in ê thó-chia̍h seng-chûn. Kò͘ soaⁿ-thâu an-choân ê soaⁿ-sîn, kóaⁿ-kín tiàu-chi̍p só͘-ū poe-chiáu iá-siù ê thâu-lâng, khui-hōe koat-tēng chhiúⁿ-kiù chhiū-nâ hóe-chai pān-hoat, ho͘-io̍k ta̍k-ke tio̍h tông-sim-hia̍p-le̍k, ūi-tio̍h ta̍k-ke an-choân oa̍h-miā, it-tēng ài jīn-chin lâi phah-hóe, m̄-thang chū-su kiaⁿ-sí, kan-nā chai-iáⁿ pó-hō͘ ka-tī, ū " Ji̍t-thâu chhiah-iāⁿ-iāⁿ sûi-lâng kò͘-sèⁿ-miā" ê chū-su sim-lí, án-ni lán-ê ka-hiong chiah-bē hō͘ bô-chêng ê tōa-hóe，sio kah ko͘-khu̍t pìⁿ-chiâⁿ bô sèⁿ-miā-la̍t ê hóe-sio-po͘.
