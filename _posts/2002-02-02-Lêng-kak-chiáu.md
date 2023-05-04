@@ -29,7 +29,7 @@ Lêng-kak-chiáu羽毛白花chhap色非常súi，腳長爪長尾mā長，是珍�
 
 Lêng-kak-chiáu tī生湠期間是一妻多夫制，鳥母負責交配生卵，chhun--ê孵卵chhōa-kiáⁿ lóng是鳥公ê tāi-chì。
 
-Lêng-kak-chiáu hèng食水內動物幼蟲，水蛙、蝌蚪ām-oaiⁿ-á、蜘蛛、種子⋯。
+Lêng-kak-chiáu hèng食水內動物幼蟲，水蛙、ām-oaiⁿ-á、蜘蛛、種子⋯。
 
 
 
@@ -62,3 +62,10 @@ It chhe to hu chū-jiân seⁿ-chiâⁿ bô gī-lūn
 ![](../too5/14/14-1-12.Lêng-kak-chiáu.jpg)
 ![](../too5/14/14-1-13.Lêng-kak-chiáu.jpg)
 
+
+
+### 【註解】
+
+|詞|解說|
+|腳柱|主要指獸類ê腳。|
+|ām-oaiⁿ-á|『蝌蚪』。|
