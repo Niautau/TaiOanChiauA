@@ -62,7 +62,7 @@ Chit-mái ê Bunun族人為tio̍h感念âng-chhùi-pit-á Qepis勇敢解救in ê
 ### **Phah火鳥 — Ataya紅嘴pit-á故事**
 >**文、錄音／Lahjih（蕭平治） 2020-09-21 17:40**
 
-- [Phah火鳥—Ataya紅嘴pit-á故事─作者錄音](https://www.youtube.com/watch?v=AjyExb2ZLYo&t=6s)
+- [Phah火鳥 — Ataya紅嘴pit-á故事 ─ 作者錄音](https://www.youtube.com/watch?v=AjyExb2ZLYo&t=6s)
 
 古早古早，Ataya tòa ê所在，有一工火燒山，連燒kúi-nā暝日，pān勢非常危急。樹林是鳥隻、野獸ê khiā家，內面有chiâⁿ chē食物，樹林、野草nā是燒了了，m̄但無thang歇siū，mā無thang chhōe食，嚴重威脅tio̍h in ê討食生存。顧山頭安全ê山神，趕緊召集所有飛鳥野獸ê頭人，開會決定搶救樹林火災辦法，呼籲ta̍k-ê tioh同心協力，為tio̍h ta̍k-ê安全活命，一定ài認真來phah火，m̄-thang自私驚死，kan-nā知影保護ka-tī，有「日頭赤iāⁿ-iāⁿ，隨人顧性命」ê自私心理，án-ne咱ê家鄉chiah-bē hō͘無情ê大火，燒kah孤khu̍t變成無生命力ê火燒埔。
 
