@@ -2,7 +2,7 @@
 chapter: U̍t kho『鷸科』
 title: 15-3. Thô͘-lâng-kau-á（土礱鉤á）
 author: Siau Lah-jih
-date: 2002-03-03
+date: 2002-03-04
 category: chheh
 show_chapter: 
 layout: post
