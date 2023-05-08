@@ -31,9 +31,9 @@ Chit-mái已經無人leh lia̍h，族群mā chiah chhun 40外隻，tī台灣是c
 
 ### **Lâm-hong-gōng Chin Liân-hôe**
 
-Lâm-hong nā thàu, lín tō sûi-sî kàu
+Lâm-hong nā thàu, lín to̍h sûi-sî kàu
 
-Lâm-hong nā chhoe, lín tō chin liân-hôe
+Lâm-hong nā chhoe, lín to̍h chin liân-hôe
 
 Thó-hâi lâng boeh kā lín lia̍h
 
@@ -59,5 +59,5 @@ Khòaⁿ lín gōng-gōng tîⁿ-tòe hî-chûn āu-piah m̄-tio̍h hāi
 
 |詞|解說|
 |tōa-kóng-sian|『招潮蟹』。|
-
+|tîⁿ-tòe|『跟隨』。|
 
