@@ -43,9 +43,9 @@ Lí sī teh khòaⁿ siáⁿ-mih
 
 Nā-sī àm-sî, he sī âng-gōa-sòaⁿ ê tiàu-kiàⁿ
 
-Khó-sioh ji̍t-thâu nā chhut, lí tō ná chheⁿ-mê
+Khó-sioh ji̍t-thâu nā chhut, lí to̍h ná chheⁿ-mê
 
-Ko͘~ko͘~ko͘~, a-ko͘-á tńg-lâi lah
+Ko͘~ko͘~ko͘~, a-ko͘-á tńg--lâi-lah
 
 Niau-thâu-chiáu, lí sī-m̄-sī teh chhōe a-ko͘-á
 
