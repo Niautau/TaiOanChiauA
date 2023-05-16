@@ -68,6 +68,7 @@ Niau-thâu-chiáu, lí sī-m̄-sī teh chhōe a-ko͘-á
 
 
 
+
 ### 貓頭鳥報喜ê故事
 
 這是日月潭所在Thao ê神話，in一直相信貓頭鳥是來報喜事ê靈鳥，而且禁止lia̍h殺。
