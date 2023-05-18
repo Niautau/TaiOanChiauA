@@ -74,5 +74,5 @@ I tō chhoh--lâng hō͘-lí sí hō͘-lí sí hō͘-lí sí hō͘-lí sí
 |詞|解說|
 |khoàiⁿ|Khòaⁿ-kìⁿ ê合音。|
 |腳跡|Kha-jiah。|
-|雞膏|雞ê軟屎。Lah-jih ê腔口是講雞膏li。Só͘-pái pe̍h-thâu-khok-á ê屎，白白膏膏，Lah-jih ka講"白膏li"。|
+|雞膏|雞ê軟屎。Lah-jih ê腔口是講雞膏li。Só͘-pái pe̍h-thâu-khok-á ê屎，白白膏膏，Lah-jih ka講 "白膏li"。|
 
