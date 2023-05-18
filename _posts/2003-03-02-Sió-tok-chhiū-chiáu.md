@@ -1,5 +1,5 @@
 ---
-chapter: Tok-bo̍k-chiáu kho『啄木鳥科』
+chapter: Tok-bo̍k-chiáu Kho『啄木鳥科』
 title: 27-2. Sió-tok-chhiū-chiáu（小啄樹鳥）
 author: Siau Lah-jih
 date: 2003-03-02
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 27. Tok-bo̍k-chiáu kho『啄木鳥科』
+#### 27. Tok-bo̍k-chiáu Kho『啄木鳥科』
 
 
 |台灣名|中譯名|學名|
