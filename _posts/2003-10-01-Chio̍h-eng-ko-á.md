@@ -1,5 +1,5 @@
 ---
-chapter: Pit-kho『鵯科』
+chapter: Pit Kho『鵯科』
 title: 34-1. Chio̍h-eng-ko-á（石Eng-ko-á）
 author: Siau Lah-jih
 date: 2003-10-01
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 34. Pit-kho『鵯科』
+#### 34. Pit Kho『鵯科』
 
 
 |台灣名|中譯名|學名|
