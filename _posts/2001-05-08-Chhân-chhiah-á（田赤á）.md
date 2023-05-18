@@ -1,5 +1,5 @@
 ---
-chapter: Lō͘ kho『鷺科』
+chapter: Lō͘ Kho『鷺科』
 title: 5-8. Chhân-chhiah-á（田赤á）
 author: Siau Lah-jih
 date: 2001-05-08
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 5. Lō͘ kho『鷺科』
+#### 5. Lō͘ Kho『鷺科』
 
 |台灣名|中譯名|學名|
 |Chhân-chhiah-á（田赤á）|栗小鷺|Cinnamon Bittern|
