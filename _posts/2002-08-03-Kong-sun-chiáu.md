@@ -1,5 +1,5 @@
 ---
-chapter: Tō͘-koan kho『杜鵑科』
+chapter: Tō͘-koan Kho『杜鵑科』
 title: 20-3. Kong-sun-chiáu（公孫鳥）
 author: Siau Lah-jih
 date: 2002-08-03
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 20. Tō͘-koan kho『杜鵑科』
+#### 20. Tō͘-koan Kho『杜鵑科』
 
 
 |台灣名|中譯名|學名|
