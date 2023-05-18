@@ -1,5 +1,5 @@
 ---
-chapter: U̍t kho『鷸科』
+chapter: U̍t Kho『鷸科』
 title: 15-3. Thô͘-lâng-kau-á（土礱鉤á）
 author: Siau Lah-jih
 date: 2002-03-04
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 15. U̍t kho『鷸科』
+#### 15. U̍t Kho『鷸科』
 
 |台灣名|中譯名|學名|
 |Thô͘-lâng-kau-á（土礱鉤á）|大杓鷸|Numenius arquata|
