@@ -1,5 +1,5 @@
 ---
-chapter: Au kho『鷗科』
+chapter: Au Kho『鷗科』
 title: 18-2. Teng-hiuⁿ-chiáu（丁香鳥）
 author: Siau Lah-jih
 date: 2002-06-02
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 18. Au kho『鷗科』
+#### 18. Au Kho『鷗科』
 
 
 |台灣名|中譯名|學名|
