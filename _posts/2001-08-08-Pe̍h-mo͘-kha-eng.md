@@ -1,5 +1,5 @@
 ---
-chapter: Chiū-eng kho『鷲鷹科』
+chapter: Chiū-eng Kho『鷲鷹科』
 title: 8-8. Pe̍h-mo͘-kha-eng（白毛腳鷹）
 author: Siau Lah-jih
 date: 2001-08-08
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 8. Chiū-eng kho『鷲鷹科』
+#### 8. Chiū-eng Kho『鷲鷹科』
 
 |台灣名|中譯名|學名|
 |Pe̍h-mo͘-kha-eng（白毛腳鷹）|熊鷹|Spizaetus nipalensis|
