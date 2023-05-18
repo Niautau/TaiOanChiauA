@@ -1,5 +1,5 @@
 ---
-chapter: Lō͘ kho『鷺科』
+chapter: Lō͘ Kho『鷺科』
 title: 5-4. N̂g-pe̍h-lêng-si（黃白翎鷥）
 author: Siau Lah-jih
 date: 2001-05-04
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 5. Lō͘ kho『鷺科』
+#### 5. Lō͘ Kho『鷺科』
 
 |台灣名|中譯名|學名|
 |N̂g-pe̍h-lêng-si（黃白翎鷥）|牛背鷺、黃頭鷺|Cattle Egret|
