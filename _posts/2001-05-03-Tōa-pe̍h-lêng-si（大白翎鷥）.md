@@ -1,5 +1,5 @@
 ---
-chapter: Lō͘ kho『鷺科』
+chapter: Lō͘ Kho『鷺科』
 title: 5-3. Tōa-pe̍h-lêng-si（大白翎鷥）
 author: Siau Lah-jih
 date: 2001-05-03
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 5. Lō͘ kho『鷺科』
+#### 5. Lō͘ Kho『鷺科』
 
 |台灣名|中譯名|學名|
 |Tōa-pe̍h-lêng-si（大白翎鷥）|白鷺|Egret（Ardea alba, Great egret）|
