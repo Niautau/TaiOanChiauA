@@ -1,6 +1,6 @@
 ---
 chapter: Pit-kho『鵯科』
-title: 34-1. Chio̍h-eng-ko-á（石eng-ko-á）
+title: 34-1. Chio̍h-eng-ko-á（石Eng-ko-á）
 author: Siau Lah-jih
 date: 2003-10-01
 category: chheh
@@ -13,9 +13,9 @@ toc: true
 
 
 |台灣名|中譯名|學名|
-|Chio̍h-eng-ko-á（石eng-ko-á）|白環鸚嘴鵯|Spizixos semitorques|
+|Chio̍h-eng-ko-á（石Eng-ko-á）|白環鸚嘴鵯|Spizixos semitorques|
 
-# 34-1. Chio̍h-eng-ko-á（石eng-ko-á）
+# 34-1. Chio̍h-eng-ko-á（石Eng-ko-á）
 
 ![](../too5/34/34-1-6.Chio̍h-eng-ko-á.jpg)
 
@@ -28,10 +28,10 @@ Chio̍h-eng-ko-á，tī台灣分布tī山坪到山崙地帶，低海拔山區，
 
 ### Pit-kho『鵯科』鳥類
 
-|Pe̍h-thâu-khok-á（白頭khok-á）|白頭翁|Pycnonotus sinensis|
-|O͘-thâu-khok-á（烏頭khok-á）|烏頭翁|Pycnonotus taivanus|
-|Âng-chhùi-pit-á（紅嘴pit-á）|紅嘴黑鵯|Hypsipetes leucocephalus|
-|Chio̍h-eng-ko-á（石eng-ko-á）|白環鸚嘴鵯|Spizixos semitorques|
+|Pe̍h-thâu-khok-á（白頭Khok-á）|白頭翁|Pycnonotus sinensis|
+|O͘-thâu-khok-á（烏頭Khok-á）|烏頭翁|Pycnonotus taivanus|
+|Âng-chhùi-pit-á（紅嘴Pit-á）|紅嘴黑鵯|Hypsipetes leucocephalus|
+|Chio̍h-eng-ko-á（石Eng-ko-á）|白環鸚嘴鵯|Spizixos semitorques|
 
 Lóng-sī台灣時常khoàiⁿ--tio̍h，in lóng kah意食肉chē有汁ê果子kap蟲thōa，gâu háu、大聲響亮、nńg-loán歌聲變化好聽，mā是特色。
 
