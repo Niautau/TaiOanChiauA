@@ -20,9 +20,9 @@ toc: true
 ![](../too5/34/34-1-6.Chio̍h-eng-ko-á.jpg)
 
 
-Chio̍h-eng-ko-á，短短ê白色嘴pe，面頂ê嘴pe向下彎曲，像鸚哥嘴，chiah kā號名石鸚哥á，ām-kún圍一環白色ê羽毛。
+Chio̍h-eng-ko-á，短短ê白色嘴pe，面頂ê嘴pe向下彎曲，像鸚哥嘴，chiah ka號名石鸚哥á，ām-kún圍一環白色ê羽毛。
 
-Chio̍h-eng-ko-á，tī台灣分布tī山坪到山崙地帶，低海拔山區，tī海拔2300m附近ê清水溪谷bat發現過。普通二~三隻一堆，tī草phō a̍h是低樹phō頂面活動，háu聲「pi、pi、pi、pi …」kài大聲，食幼葉、果子、漿果、昆蟲kap伊ê幼蟲。Kah意絞群tiàm低海拔山區、開闊草phō、電線頂唱歌。
+Chio̍h-eng-ko-á，tī台灣分布tī山坪到山崙地帶，低海拔山區，tī海拔2300m附近ê清水溪谷bat發現--過。普通二~三隻一堆，tī草phō a̍h是低樹phō頂面活動，háu聲「pi、pi、pi、pi …」kài大聲，食幼葉、果子、『漿果』、蟲thōa kap伊ê幼蟲。Kah意絞群tiàm低海拔山區、開闊草phō、電線頂唱歌。
 
 
 
