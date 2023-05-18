@@ -1,5 +1,5 @@
 ---
-chapter: Kiu-kap kho『鳩鴿科』
+chapter: Kiu-kap Kho『鳩鴿科』
 title: 19-3. Soaⁿ-hún-chiáu（山粉鳥）
 author: Siau Lah-jih
 date: 2002-07-03
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 19. Kiu-kap kho『鳩鴿科』
+#### 19. Kiu-kap Kho『鳩鴿科』
 
 
 |台灣名|中譯名|學名|
