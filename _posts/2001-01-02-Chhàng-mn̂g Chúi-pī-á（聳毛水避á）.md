@@ -1,5 +1,5 @@
 ---
-chapter: Pek-the kho『鷿鷈科-Podicipedidae』
+chapter: Pek-the Kho『鷿鷈科-Podicipedidae』
 title: 1-2. Chhàng-mn̂g Chúi-pī-á（聳毛水避á）
 author: Siau Lah-jih
 date: 2001-01-02
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 1. Pek-the kho『鷿鷈科-Podicipedidae』
+#### 1. Pek-the Kho『鷿鷈科-Podicipedidae』
 
 |台灣名|中譯名|學名|
 |Chhàng-mn̂g Chúi-pī-á（聳毛水避á）|冠鸊鷉|Podiceps cristatus|
