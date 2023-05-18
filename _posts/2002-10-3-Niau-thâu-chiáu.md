@@ -1,5 +1,5 @@
 ---
-chapter: Chhi-go̍k kho『鴟鶚科』
+chapter: Chhi-go̍k Kho『鴟鶚科』
 title: 22-3. Niau-thâu-chiáu（貓頭鳥）— 褐鷹鴞
 author: Siau Lah-jih
 date: 2002-10-03
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 22. Chhi-go̍k kho『鴟鶚科』
+#### 22. Chhi-go̍k Kho『鴟鶚科』
 
 
 |台灣名|中譯名|學名|
