@@ -1,5 +1,5 @@
 ---
-chapter: Tì-sèng kho『戴勝科』
+chapter: Tì-sèng Kho『戴勝科』
 title: 25-1. Bōng-khòng-chiáu（墓壙鳥）
 author: Siau Lah-jih
 date: 2003-01-01
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 25. Tì-sèng kho『戴勝科』
+#### 25. Tì-sèng Kho『戴勝科』
 
 
 |台灣名|中譯名|學名|
