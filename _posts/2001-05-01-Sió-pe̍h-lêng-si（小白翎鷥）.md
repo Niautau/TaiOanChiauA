@@ -1,5 +1,5 @@
 ---
-chapter: Lō͘ kho『鷺科』
+chapter: Lō͘ Kho『鷺科』
 title: 5-1. Sió-pe̍h-lêng-si（小白翎鷥）
 author: Siau Lah-jih
 date: 2001-05-01
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 5. Lō͘ kho『鷺科』
+#### 5. Lō͘ Kho『鷺科』
 
 |台灣名|中譯名|學名|
 |Sió-pe̍h-lêng-si（小白翎鷥）|白鷺|Egret （Egretta garzetta）|
