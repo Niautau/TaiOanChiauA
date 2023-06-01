@@ -44,11 +44,12 @@ Hô-hâi thoân-kiat tio̍h o̍h i
 
 
 
+![](../too5/39/39-3-7.Tn̂g-bóe-soaⁿ-niû.jpg)
 ![](../too5/39/39-3-5.Tn̂g-bóe-soaⁿ-niû.jpg)
 ![](../too5/39/39-3-6.Tn̂g-bóe-soaⁿ-niû.jpg)
 ![](../too5/39/39-3-1.Tn̂g-bóe-soaⁿ-niû.jpg)
 ![](../too5/39/39-3-2.Tn̂g-bóe-soaⁿ-niû.jpg)
-
+![](../too5/39/39-3-4.Tn̂g-bóe-soaⁿ-niû.jpg)
 
 
 
