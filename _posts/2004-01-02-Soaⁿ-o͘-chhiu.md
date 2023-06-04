@@ -18,7 +18,7 @@ toc: true
 
 # 37-2. Soaⁿ-o͘-chhiu（山烏鶖）
 
-![](../too5/37/37-2-3.Soaⁿ-o͘-chhiu.jpg)
+![](../too5/37/37-2-5.Soaⁿ-o͘-chhiu.jpg)
 
 
 Soaⁿ-o͘-chhiu kap烏鶖是kāng族親，chiâⁿ chia̍p tī樹林邊a̍h是樹欉khah疏ê山區出現，kui身軀烏金烏金ê烏藍色，bē飛真遠，速度真緊sêng「~~~~」ê波浪形，時常kap戲班á kap做夥活動，kui大tīn ê戲班á後壁時常有2~7隻ê soaⁿ-o͘-chhiu tòe-leh保護，nā有猛禽出現，一定引起in ê攻擊。
@@ -47,8 +47,9 @@ Jiok béng-khîm bô lún-chhiú
 Pó-hō͘ chiáu-chiah bián iu-chhiû
 
 
-
-
+![](../too5/37/37-2-6.Soaⁿ-o͘-chhiu.jpg)
+![](../too5/37/37-2-4.Soaⁿ-o͘-chhiu.jpg)
+![](../too5/37/37-2-3.Soaⁿ-o͘-chhiu.jpg)
 ![](../too5/37/37-2-1.Soaⁿ-o͘-chhiu.jpg)
 ![](../too5/37/37-2-2.Soaⁿ-o͘-chhiu.jpg)
 
