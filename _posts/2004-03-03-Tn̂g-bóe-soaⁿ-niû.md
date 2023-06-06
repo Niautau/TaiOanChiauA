@@ -1,5 +1,5 @@
 ---
-chapter: A kho『鴉科』
+chapter: A Kho『鴉科』
 title: 39-3. Tn̂g-bóe-soaⁿ-niû（長尾山娘）
 author: Siau Lah-jih
 date: 2004-03-03
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-#### 39. A kho『鴉科』
+#### 39. A Kho『鴉科』
 
 
 |台灣名|中譯名|學名|
