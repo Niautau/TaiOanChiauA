@@ -18,7 +18,7 @@ toc: true
 
 # 40-1. Chúi-tin-tang（水tin-tang）
 
-![](../too5/40/40-1-4.Chúi-tin-tang.jpg)
+![](../too5/40/40-1-6.Chúi-tin-tang.jpg)
 
 
 Chúi-tin-tang，生活tī坑溝á有水流ê清氣水溪谷附近，khiā tī溪á邊、石頭頂chhōe食活動，用伊ê生活環境來號名，是鄉土味真重ê坑溝水鳥，chúi-tin-tang kài kó͘-chui chiok好聽。
@@ -51,7 +51,7 @@ Chúi-tin-tang, kó͘-chui ū-kàu oa̍h-tāng
 
 
 
-![](../too5/40/40-1-6.Chúi-tin-tang.jpg)
+![](../too5/40/40-1-4.Chúi-tin-tang.jpg)
 ![](../too5/40/40-1-3.Chúi-tin-tang.jpg)
 ![](../too5/40/40-1-5.Chúi-tin-tang.jpg)
 ![](../too5/40/40-1-1.Chúi-tin-tang.jpg)
