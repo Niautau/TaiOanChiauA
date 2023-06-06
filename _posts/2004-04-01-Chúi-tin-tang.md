@@ -39,7 +39,7 @@ Chúi-tin-tang tī chhoah流區chhōe食ê時間khah chē，因為chhoah流所�
 
 Khòaⁿ lí tiām-tiām khiā, m̄-chai-iáⁿ lí ū gōa gâu gōa liú-lia̍h
 
-Khòaⁿ lí tián kang-hu, chiah-chai lí ū gŏa-ni̍h khiàng ê pún-sū
+Khòaⁿ lí tián kang-hu, chiah-chai lí ū gŏa-nī khiàng ê pún-sū
 
 Phi chúi-bīn, ná poe-chìⁿ
 
