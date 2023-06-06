@@ -4,7 +4,7 @@ title: 40-1. Chúi-tin-tang（水tin-tang）
 author: Siau Lah-jih
 date: 2004-04-01    
 category: chheh
-show_chapter: 
+show_chapter: 40
 layout: post
 toc: true
 ---
