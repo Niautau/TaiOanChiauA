@@ -18,7 +18,7 @@ toc: true
 
 # 41-4. Chhù-kak-chiáu（厝角鳥）
 
-![](../too5/41/43-4-1.Chhù-kak-chiáu.jpg)
+![](../too5/41/41-4-1.Chhù-kak-chiáu.jpg)
 
 
 Chhù-kak-chiáu m̄是chhù-chiáu-á，chhù-chiáu-á to̍h是chhek-chiáu-á hèng食粟，是台灣在地鳥。Chhù-kak-chiáu是hāu-niáu，秋去春來，每年一定飛轉來做人客，做siū tī厝角，m̄-chiah hō͘人號做chhù-kak chiáu，chiâⁿ有鄉土味。
@@ -48,13 +48,13 @@ Mā bē kā lín thau-chia̍h chhek
 
 
 
-![](../too5/41/43-4-2.Chhù-kak-chiáu.jpg)
-![](../too5/41/43-4-6.Chhù-kak-chiáu.jpg)
-![](../too5/41/43-4-7.Chhù-kak-chiáu.jpg)
-![](../too5/41/43-4-3.Chhù-kak-chiáu.jpg)
-![](../too5/41/43-4-4.Chhù-kak-chiáu.jpg)
-![](../too5/41/43-4-5.Chhù-kak-chiáu.jpg)
-![](../too5/41/43-4-8.Chhù-kak-chiáu.jpg)
+![](../too5/41/41-4-2.Chhù-kak-chiáu.jpg)
+![](../too5/41/41-4-6.Chhù-kak-chiáu.jpg)
+![](../too5/41/41-4-7.Chhù-kak-chiáu.jpg)
+![](../too5/41/41-4-3.Chhù-kak-chiáu.jpg)
+![](../too5/41/41-4-4.Chhù-kak-chiáu.jpg)
+![](../too5/41/41-4-5.Chhù-kak-chiáu.jpg)
+![](../too5/41/41-4-8.Chhù-kak-chiáu.jpg)
 
 
 
