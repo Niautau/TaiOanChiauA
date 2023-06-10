@@ -21,7 +21,7 @@ toc: true
 ![](../too5/41/43-4-1.Chhù-kak-chiáu.jpg)
 
 
-Chhù-kak-chiáu m̄是chhù-chiáu-á，chhù-chiáu-á to̍h是chhek-chiáu-á hèng食粟，是台灣在地鳥。Chhù-kak-chiáu是hāu-niáu，秋去春來，每年一定飛轉來做人客，做siū tī 厝角，m̄-chiah hō͘人號做chhù-kak chiáu，chiâⁿ有鄉土味。
+Chhù-kak-chiáu m̄是chhù-chiáu-á，chhù-chiáu-á to̍h是chhek-chiáu-á hèng食粟，是台灣在地鳥。Chhù-kak-chiáu是hāu-niáu，秋去春來，每年一定飛轉來做人客，做siū tī厝角，m̄-chiah hō͘人號做chhù-kak chiáu，chiâⁿ有鄉土味。
 
 Chhù-kak-chiáu chiok愛khiā tiàm厝角頭a̍h-sī石頭頂，thèng-hāu báng-thâng出現chiah突然lia̍h食。
 
