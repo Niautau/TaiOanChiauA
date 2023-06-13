@@ -54,15 +54,15 @@ Hāi gún m̄-chai boeh sóa khì tah
 
 
 
-![](../too5/42/42-4-1.Tek-kha-hoe-bî.jpg)
-![](../too5/42/42-4-2.Tek-kha-hoe-bî.jpg)
-![](../too5/42/42-4-3.Tek-kha-hoe-bî.jpg)
-![](../too5/42/42-4-4.Tek-kha-hoe-bî.jpg)
 ![](../too5/42/42-4-5.Tek-kha-hoe-bî.jpg)
+![](../too5/42/42-4-4.Tek-kha-hoe-bî.jpg)
 ![](../too5/42/42-4-6.Tek-kha-hoe-bî.jpg)
 ![](../too5/42/42-4-7.Tek-kha-hoe-bî.jpg)
 ![](../too5/42/42-4-8.Tek-kha-hoe-bî.jpg)
 ![](../too5/42/42-4-9.Tek-kha-hoe-bî.jpg)
+![](../too5/42/42-4-1.Tek-kha-hoe-bî.jpg)
+![](../too5/42/42-4-2.Tek-kha-hoe-bî.jpg)
+![](../too5/42/42-4-3.Tek-kha-hoe-bî.jpg)
 
 
 
