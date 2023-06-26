@@ -65,21 +65,20 @@ Thau-thau-á kā lí kóng
 To̍h-sī chin-gâu chit pò͘-tē
 
 
-
+![](../too5/44/44-5-7.Bāng-tang-tiuh-á.jpg)
+![](../too5/44/44-5-8.Bāng-tang-tiuh-á.jpg)
+![](../too5/44/44-5-9.Bāng-tang-tiuh-á.jpg)
+![](../too5/44/44-5-10.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-2.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-3.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-4.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-5.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-6.Bāng-tang-tiuh-á.jpg)
-![](../too5/44/44-5-7.Bāng-tang-tiuh-á.jpg)
-![](../too5/44/44-5-8.Bāng-tang-tiuh-á.jpg)
-![](../too5/44/44-5-9.Bāng-tang-tiuh-á.jpg)
-![](../too5/44/44-5-10.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-11.Bāng-tang-tiuh-á.jpg)
-![](../too5/44/44-5-12.Bāng-tang-tiuh-á.jpg)
-![](../too5/44/44-5-13.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-14.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-15.Bāng-tang-tiuh-á.jpg)
+![](../too5/44/44-5-12.Bāng-tang-tiuh-á.jpg)
+![](../too5/44/44-5-13.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-17.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-18.Bāng-tang-tiuh-á.jpg)
 ![](../too5/44/44-5-19.Bāng-tang-tiuh-á.jpg)
