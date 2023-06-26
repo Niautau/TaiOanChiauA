@@ -34,12 +34,12 @@ Bāng-tang-tiuh-á，Pò͘-tē-chiáu，kài有庄腳在地味，時常活動t�
 Bāng-tang-tiuh-á háu聲「chiŭ chiŭ chiŭ chiŭ」幼聲khah無變化，ná háu尾ná sìm，有夠古錐。作田人chin-chia̍p khoàiⁿ。
 
 
-### 謎猜
+#### 謎猜
 
 有chi̍t-ê bī-chhai謎題號做「Sìm-sìm枝sìm-sìm葉，Bāng-tang-tih-á，hioh bē-tio̍h。」謎底to̍h是「kú-chhài，韭菜」。
 
 
-### 腔口差ê說明
+#### 腔口差ê說明
 
 Bāng-tang-tiuh-á生做tih-tih隻á細細隻，所以阮kō͘伊ê形體號名「bāng-tang-tih-á」。
 
