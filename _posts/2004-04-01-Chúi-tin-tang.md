@@ -1,6 +1,6 @@
 ---
 chapter: Hô-o͘ Kho『河烏科』
-title: 40-1. Chúi-tin-tang（水tin-tang）
+title: 40-1. Chúi-tin-tang（水Tin-tang）
 author: Siau Lah-jih
 date: 2004-04-01    
 category: chheh
@@ -13,10 +13,10 @@ toc: true
 
 
 |台灣名|中譯名|學名|
-|Chúi-tin-tang（水tin-tang）|河烏|Cinclidae|
+|Chúi-tin-tang（水Tin-tang）|河烏|Cinclidae|
 
 
-# 40-1. Chúi-tin-tang（水tin-tang）
+# 40-1. Chúi-tin-tang（水Tin-tang）
 
 ![](../too5/40/40-1-6.Chúi-tin-tang.jpg)
 
