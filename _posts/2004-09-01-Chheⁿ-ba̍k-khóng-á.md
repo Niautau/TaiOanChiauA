@@ -48,8 +48,9 @@ Chheⁿ-ba̍k-khóng-á lí kho͘-si-á hō͘-lâng thiaⁿ
 
 M̄-thang oan-ke sio-phah hó--bò͘
 
- 
 
+![](../too5/45/45-1-12.Chheⁿ-ba̍k-khóng-á.jpg) 
+![](../too5/45/45-1-13.Chheⁿ-ba̍k-khóng-á.jpg)
 ![](../too5/45/45-1-2.Chheⁿ-ba̍k-khóng-á.jpg)
 ![](../too5/45/45-1-6.Chheⁿ-ba̍k-khóng-á.jpg)
 ![](../too5/45/45-1-9.Chheⁿ-ba̍k-khóng-á.jpg)
