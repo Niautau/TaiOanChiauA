@@ -65,6 +65,6 @@ Chúi-tin-tang, kó͘-chui ū-kàu oa̍h-tāng
 
 |詞|解說|
 |蹼|Pok。|
-
+|ke-bú|『街舞』。|
 
 
