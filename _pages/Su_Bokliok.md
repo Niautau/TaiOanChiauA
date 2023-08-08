@@ -111,91 +111,111 @@ layout: post
 
 ### 11. Thī Kho『雉科』
 
-[文字](網址)
+[11-1. Thī-ke（雉雞）](https://siaulahjih.github.io/TaiOanChiauA/chheh/01-11-01.html)
 
-[文字](網址)
+[11-2. Hôa-ke（華雞）](https://siaulahjih.github.io/TaiOanChiauA/chheh/01-11-02.html)
 
-[文字](網址)
+[11-3. O͘-thī-ke（烏雉雞）](https://siaulahjih.github.io/TaiOanChiauA/chheh/01-11-03.html)
 
-[文字](網址)
+[11-4. Tek-ke（竹雞）](https://siaulahjih.github.io/TaiOanChiauA/chheh/01-11-04.html)
 
-[文字](網址)
+[11-5. Tiò-ku（釣龜）](https://siaulahjih.github.io/TaiOanChiauA/chheh/01-11-05.html)
 
-[文字](網址)
+[11-6. Ngó͘-bêng-ke（五鳴雞）](https://siaulahjih.github.io/TaiOanChiauA/chheh/01-11-06.html)
 
-[文字](網址)
+[11-7. Bô-bóe-ian-chhun／thun（無尾鵪鶉）](https://siaulahjih.github.io/TaiOanChiauA/chheh/01-11-07.html)
 
-[文字](網址)
+[11-8. Bô-bóe Saⁿ-jiáu-ian-chhun（無尾三爪鵪鶉）](https://siaulahjih.github.io/TaiOanChiauA/chheh/01-11-08.html)
 
-[文字](網址)
+### 12. Ho̍h Kho『鶴科』
 
-[文字](網址)
+[12-1. Ho̍h（鶴）](https://siaulahjih.github.io/TaiOanChiauA/chheh/01-12-01.html)
 
-[文字](網址)
+### 13. Iong-ke Kho『秧雞科』
+[13-1. Bí-ke-á（米雞á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-01-01.html)
 
-[文字](網址)
+[13-2. Khó͘-ke-bó（苦雞母）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-01-02.html)
 
-[文字](網址)
+[13-3. Chhân-tòm](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-01-03.html)
 
-[文字](網址)
+[13-4. Chhân-ke-á（田雞á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-01-04.html)
 
-[文字](網址)
+[13-5. O͘-ke-á（烏雞á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-01-05.html)
 
-[文字](網址)
+### 14. Chúi-thī／tī Kho『水雉科』
 
-[文字](網址)
+[14-1. Lêng-kak-chiáu（菱角鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-02-01.html)
 
-[文字](網址)
+### 15. U̍t Kho『鷸科』
 
-[文字](網址)
+[15-0. 『鷸科』Chúi-chiam-á（水尖á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-03-01.html)
 
-[文字](網址)
+[15-1. Kut-chiam-á（骨簪á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-03-02.html)
 
-[文字](網址)
+[15-2. Chio̍h-sai（石獅）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-03-03.html)
 
-[文字](網址)
+[15-3. Thô͘-lâng-kau-á（土礱鉤á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-03-04.html)
 
-[文字](網址)
+[15-4. Thô͘-lâng-kau-á（土礱鉤á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-03-05.html)
 
-[文字](網址)
+[15-5. Chhân-chǹg-á（田鑽á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-03-06.html)
 
-[文字](網址)
+### 16. Hêng Kho『鴴科』
 
-[文字](網址)
+[16-1. Chhân-niau-á（田貓á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-04-01.html)
 
-[文字](網址)
+[16-2. Kim-gán（金眼）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-04-02.html)
 
-[文字](網址)
+[16-3. Lò-kha-á（Lò腳á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-04-03.html)
 
-[文字](網址)
+[16-4. Khiàu-chhùi-á（Khiàu嘴á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-04-04.html)
 
-[文字](網址)
+### 17. Iàn-hêng Kho『燕鴴科』
 
-[文字](網址)
+[17-1. Chháu-po͘-ìⁿ-á（草埔燕á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-05-01.html)
 
-[文字](網址)
+### 18. Au Kho『鷗科』
 
-[文字](網址)
+[18-1. Hái-ìⁿ-á（海燕á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-06-01.html)
 
-[文字](網址)
+[18-2. Teng-hiuⁿ-chiáu（丁香鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-06-02.html)
 
-[文字](網址)
+[18-3. Lâm-hong-gōng（南風戇）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-06-03.html)
 
-[文字](網址)
+[18-4. Chhàng-mn̂g Hái-ìⁿ-á（聳毛海燕á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-06-04.html)
 
-[文字](網址)
+### 19. Kiu-kap Kho『鳩鴿科』
 
-[文字](網址)
+[19-1. Chheⁿ-chui（青鵻）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-07-01.html)
 
-[文字](網址)
+[19-2. Âng-thâu-chheⁿ-chui（紅頭青鵻）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-07-02.html)
 
-[文字](網址)
+[19-3. Soaⁿ-hún-chiáu（山粉鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-07-03.html)
 
-[文字](網址)
+[19-4. Sò͘-chu-á（數珠á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-07-04.html)
 
-[文字](網址)
+[19-5. Tōa-hoe-pan（大花斑）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-07-05.html)
 
-[文字](網址)
+[19-6. Hóe-chui-á（火鵻á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-07-06.html)
+
+[19-7. Nâ-kha-chiáu（林腳鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-07-07.html)
+
+### 20. Tō͘-koan Kho『杜鵑科』
+
+[20-1. Pò͘-kok（布穀）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-08-01.html)
+
+[20-2. Tō͘-koan（杜鵑）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-08-02.html)
+
+[20-3. Kong-sun-chiáu（公孫鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-08-03.html)
+
+[20-4. Ko͘-chiáu（姑鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-08-04.html)
+
+[20-5. Ko͘-chiáu（姑鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-08-05.html)
+
+[20-6. Chháu-kok（草Kok）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-08-06.html)
+
+### 21. Chháu-go̍k Kho『草鶚科』
+
 
 [文字](網址)
 
