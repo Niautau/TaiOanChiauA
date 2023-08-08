@@ -276,108 +276,152 @@ layout: post
 
 [32-1. Gû-sái-chiáu-á（牛屎鳥á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-08-01.html)
 
-[文字](網址)
+### 33. Soaⁿ-chiau-chiáu Kho『山椒鳥科』
 
-[文字](網址)
+[33-1. Hì-pan-á（戲班á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-09-01.html)
 
-[文字](網址)
+### 34. Pit Kho『鵯科』
 
-[文字](網址)
+[34-1. Chio̍h-eng-ko-á（石Eng-ko-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-10-01.html)
 
-[文字](網址)
+[34-2 Pe̍h-thâu-khok-á（白頭Khok-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-10-02.html)
 
-[文字](網址)
+[34-3. O͘-thâu-khok-á（烏頭Khok-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-10-03.html)
 
-[文字](網址)
+[34-4. Âng-chhùi-pit-á（紅嘴Pit-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-10-04.html)
 
-[文字](網址)
+### 35. Pit-lô Kho『伯勞科』
 
-[文字](網址)
+[35-1. Bi̍t-lô-á](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-11-01.html)
 
-[文字](網址)
+[35-2. Bi̍t-lô-bâ-á](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-11-02.html)
 
-[文字](網址)
+### 36. N̂g-lî Kho『黃鸝科』
 
-[文字](網址)
+[36-1. N̂g-eng（黃鶯）](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-12-01.html)
 
-[文字](網址)
+[36-2. Âng-eng（紅鶯）](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-12-02.html)
 
-[文字](網址)
+### 37. Kńg-bóe Kho『捲尾科』
 
-[文字](網址)
+[37-1. O͘-chhiu（烏鶖）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-01-01.html)
 
-[文字](網址)
+[37-2. Soaⁿ-o͘-chhiu（山烏鶖）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-01-01.html)
 
-[文字](網址)
+### 38. Liâng-chiáu Kho『椋鳥科』
 
-[文字](網址)
+[38-1. Ka-lēng（鵁鴒）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-02-01.html)
 
-[文字](網址)
+[38-2. Ka-lēng（鵁鴒）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-02-02.html)
 
-[文字](網址)
+[38-3. Ka-lēng（鵁鴒）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-02-03.html)
 
-[文字](網址)
+### 39. A Kho『鴉科』
 
-[文字](網址)
+[39-1. O͘-a（烏鴉）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-03-01.html)
 
-[文字](網址)
+[39-2. Kheh-chiáu（客鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-03-02.html)
 
-[文字](網址)
+[39-3. Tn̂g-bóe-soaⁿ-niû（長尾山娘）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-03-03.html)
 
-[文字](網址)
+[39-4. Ka-ka-á（咖咖á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-03-04.html)
 
-[文字](網址)
+[39-5. Peh-bān-á（八萬á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-03-05.html)
 
-[文字](網址)
+[39-6. Chhêng-peh-á（松柏á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-03-06.html)
 
-[文字](網址)
+### 40. Hô-o͘ Kho『河烏科』
 
-[文字](網址)
+[40-1. Chúi-tin-tang（水Tin-tang）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-04-01.html)
 
-[文字](網址)
+### 41. Tong Kho『鶇科』
 
-[文字](網址)
+[41-1. Âng-kui-á（紅Kui-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-05-01.html)
 
-[文字](網址)
+[41-2. Âng-bóe-tang-á（紅尾Tang-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-05-02.html)
 
-[文字](網址)
+[41-3. O͘-pe̍h-tang-á（烏白Tang-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-05-03.html)
 
-[文字](網址)
+[41-4. Chhù-kak-chiáu（厝角鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-05-04.html)
 
-[文字](網址)
+[41-5. O͘-ki（烏磯）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-05-05.html)
 
-[文字](網址)
+[41-6. Pe̍h-thâu-á（白頭á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-05-06.html)
 
-[文字](網址)
+### 42. Hoe-bî Kho『畫眉科』
 
-[文字](網址)
+[42-1. Hoe-bî（花眉）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-06-01.html)
 
-[文字](網址)
+[42-2. Tek-nâ-hoe-bî（竹林花眉）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-06-02.html)
 
-[文字](網址)
+[42-3. Pe̍h-kui-á（白Kui-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-06-03.html)
 
-[文字](網址)
+[42-4. Tek-kha-hoe-bî（竹腳花眉）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-06-04.html)
 
-[文字](網址)
+[42-5. Sì-bâi（四眉）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-06-05.html)
 
-[文字](網址)
+[42-6. Pe̍h-hīⁿ-á（白耳á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-06-06.html)
 
-[文字](網址)
+[42-7. Han-chî-á-chiáu（番薯á鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-06-07.html)
 
-[文字](網址)
+[42-8. Kiau-kiau（嬌嬌）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-06-08.html)
 
-[文字](網址)
+[42-9. Tōa-ba̍k-khóng-á（大目孔á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-06-09.html)
 
-[文字](網址)
+[42-10. Chiam-thâu-á（尖頭á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-06-10.html)
 
-[文字](網址)
+### 43. Eng-chhùi Kho『鸚嘴科』
 
-[文字](網址)
+[43-1. Îⁿ-thâu-á（圓頭á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-07-01.html)
 
-[文字](網址)
+### 44. Eng Kho『鶯科』
 
-[文字](網址)
+[44-1. Lô͘-tek-á-chiáu（蘆竹á鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-08-01.html)
 
-[文字](網址)
+[44-2. Sam-á-chiáu（杉á鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-08-02.html)
 
-[文字](網址)
+[44-3. Pe̍h-bóe-sìⁿ（白尾扇）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-08-03.html)
+
+[44-4. Thióng-á-chiáu（塚á鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-08-04.html)
+
+[44-5. Bāng-tang-tiuh-á/Pò͘-tē-chiáu（望冬Tiuh-á/布袋鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-08-05.html)
+
+### 45. Ong Kho『鶲科』
+
+[45-1. Chheⁿ-ba̍k-khóng-á（青目孔á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-09-01.html)
+
+[45-2. Ní-pò͘-chiáu（染布鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-09-02.html)
+
+## 46. Soaⁿ-chhiok Kho『山雀科』
+
+[46-1. Sai-kong-á-chiáu（司公á鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-10-01.html)
+
+[46-2. Âng-thâu-á（紅頭á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-10-02.html)
+
+### 47. Siù-gán Kho『繡眼科』
+
+[47-1. Chheⁿ-tî-á](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-11-01.html)
+
+### 48. Bûn-chiáu Kho『文鳥科』
+
+[48-1. Chhek-chiáu-á（粟鳥á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-12-01.html)
+
+[48-2. O͘-chhùi-pit-á（烏嘴Pit-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-12-02.html)
+
+[48-3. O͘-chhùi-pit-á（烏嘴Pit-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-12-03.html)
+
+[48-4. O͘-chhùi-pit-á（烏嘴Pit-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-12-04.html)
+
+### 49. Chhiok Kho『雀科』
+
+[49-1. Âng-chiáu-á（紅鳥á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/05-01-01.html)
+
+[49-2. O͘-bīn-kâu（烏面猴）](https://siaulahjih.github.io/TaiOanChiauA/chheh/05-01-02.html)
+
+[49-3. Sng-si](https://siaulahjih.github.io/TaiOanChiauA/chheh/05-01-03.html)
+
+[49-4. Sió-sng-si](https://siaulahjih.github.io/TaiOanChiauA/chheh/05-01-04.html)
+
+### 50. Hu̍t-hoat-cheng Kho『佛法僧科』
+
+[50-1. Soaⁿ-eng-ko（山鸚哥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/05-02-01.html)
