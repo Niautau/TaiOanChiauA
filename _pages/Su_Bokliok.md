@@ -228,7 +228,7 @@ layout: post
 
 [22-4. Niau-thâu-chiáu（貓頭鳥）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-10-04.html)
 
-### 23. Iá-eng Kho『夜鷹科』
+### 23. Iā-eng Kho『夜鷹科』
 
 [23-1. Chio̍h-ki-á（石磯á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/02-11-01.html)
 
