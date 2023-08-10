@@ -40,7 +40,7 @@ Hoe-bî chhin-chiâⁿ chin chiàⁿ chē
 
 Kan-nā tek-kha-hoe-bî siāng ài kap lâng tòa-chò-hóe
 
-Ta̍k-ji̍t tek-kha li-pa lōa-lōa-sô
+Ta̍k-ji̍t tek-kha lî-pa lōa-lōa-sô
 
 Ji̍t-chí kòe kah bô-hoân-bô-ló
 
