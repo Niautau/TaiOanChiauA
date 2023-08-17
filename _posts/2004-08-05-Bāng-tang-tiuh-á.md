@@ -50,7 +50,7 @@ Bāng-tang-tiuh-á生做tih-tih隻á細細隻，所以阮kō͘伊ê形體號名
 
 ### **Bāng-tang-tiuh-á Chit Pò͘-tē**
 
-Sè bóng sé, góa ê kang-hu chin-chiàⁿ chē
+Sè bóng sè, góa ê kang-hu chin-chiàⁿ chē
 
 Kho͘-si-á góa ē, thiàu-koân thiàu-kē góa ē
 
