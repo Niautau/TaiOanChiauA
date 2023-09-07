@@ -22,7 +22,7 @@ Chit ê網站是為tio̍h **Siau Lah-jih（蕭平治）**先生ê著作**《Hên
 
 ## 計劃團隊
 * 作者、指導：Siau Lah-jih（蕭平治）
-* 共同發起人：Siau Lah-jih（蕭平治）、Chhòa I̍t-bîn（蔡逸民）、Koa-ông Péng-hun、Tân Chu-hôa、Tân Sió-tâi
+* 共同發起人：Siau Lah-jih（蕭平治）、Chhòa I̍t-bîn、Koa-ông Péng-hun、Tân Chu-hôa、Tân Sió-tâi
 * 總編輯：Tân Sió-tâi
 * 校對、編輯：Chhòa I̍t-bîn、Koa-Ông Péng-hun、Tân Sió-tâi
 * 網站維護：Tân Chu-hôa
