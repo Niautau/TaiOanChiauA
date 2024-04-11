@@ -23,13 +23,13 @@ toc: true
 
 Chhàng-mn̂g-tō͘-koan tī台灣本島是真罕有ê過境鳥，金門khah捷出現。
 
-Chhàng-mn̂g-tō͘-koan身長大約40體長約40 cm，頭殼毛chhàng-chhàng深珈琲色，尾大pha mā是深珈琲色，翼股下頷咖啡紅，下胸腹tó͘白色，看起來不止á影目。
+Chhàng-mn̂g-tō͘-koan身長大約40 cm，頭殼毛chhàng-chhàng深珈琲色，尾大pha mā是深珈琲色，翼股下頷咖啡紅，下胸腹tó͘白色，看起來不止á影目。
 
 
 ![](../too5/20/20-7-1.聳毛杜鵑4135.jpg)
 ![](../too5/20/20-7-2.聳毛杜鵑4136.jpg)
 
-
+    
 
 ### 1973 Embree台英辭典記載
 
