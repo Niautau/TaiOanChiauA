@@ -16,7 +16,7 @@ toc: true
 |Chhàng-mn̂g tō͘-koan（聳毛杜鵑）|冠郭公／紅翅鳳頭杜鵑|Clamator coromandus|
 
 
-# 20-6. Chhàng-mn̂g Tō͘-koan（聳毛杜鵑）
+# 20-7. Chhàng-mn̂g Tō͘-koan（聳毛杜鵑）
 
 ![](../too5/20/20-7-3.聳毛杜鵑4137.jpg)
 
