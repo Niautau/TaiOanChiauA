@@ -1,6 +1,6 @@
 ---
 chapter: Eng Kho『鶯科』
-title: 44-5. Bāng-tang-tiuh-á/Pò͘-tē-chiáu（望冬tiuh-á/布袋鳥）
+title: 44-5. Bāng-tang-tiuh-á/Pò͘-tē-chiáu（望冬Tiuh-á/布袋鳥）
 author: Siau Lah-jih
 date: 2004-08-05    
 category: chheh
@@ -13,12 +13,12 @@ toc: true
 
 
 |台灣名|中譯名|學名|
-|Bāng-tang-tiuh-á/Pò͘-tē-chiáu（望冬tiuh-á/布袋鳥）|褐頭鷦鶯|Prinia inornata|
-|Bāng-tang-tiuh-á/Pò͘-tē-chiáu（望冬tiuh-á/布袋鳥）|灰頭鷦鶯|Prinia flaviventris|
+|Bāng-tang-tiuh-á/Pò͘-tē-chiáu（望冬Tiuh-á/布袋鳥）|褐頭鷦鶯|Prinia inornata|
+|Bāng-tang-tiuh-á/Pò͘-tē-chiáu（望冬Tiuh-á/布袋鳥）|灰頭鷦鶯|Prinia flaviventris|
 
 
 
-#### 44-5. Bāng-tang-tiuh-á/Pò͘-tē-chiáu（望冬tiuh-á/布袋鳥）
+#### 44-5. Bāng-tang-tiuh-á/Pò͘-tē-chiáu（望冬Tiuh-á/布袋鳥）
 
 ![](../too5/44/44-5-1.Bāng-tang-tiuh-á.jpg)
 
@@ -50,7 +50,7 @@ Bāng-tang-tiuh-á生做tih-tih隻á細細隻，所以阮kō͘伊ê形體號名
 
 ### **Bāng-tang-tiuh-á Chit Pò͘-tē**
 
-Sè bóng sé, góa ê kang-hu chin-chiàⁿ chē
+Sè bóng sè, góa ê kang-hu chin-chiàⁿ chē
 
 Kho͘-si-á góa ē, thiàu-koân thiàu-kē góa ē
 

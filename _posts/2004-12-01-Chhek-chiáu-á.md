@@ -36,7 +36,6 @@ Chhek-chiáu-á行路kō͘跳--ê chhia̍k-chhia̍k-tiô，háu聲「chiuh chiu
 
 
 
-
 # 【Tâi-oân Chiáu-á Liām Koa-si】
 
 ### **Chhek-chiáu-á Ài Chia̍h-chhek**

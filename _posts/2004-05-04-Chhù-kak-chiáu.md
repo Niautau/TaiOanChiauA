@@ -36,7 +36,7 @@ Chhù-kak-chiáu是hāu-niáu，mā有chi̍t-kóa是在地鳥，kah-ì單獨討�
 ### **Chhù-kak-chiáu M̄ Chia̍h-chhek**
 
 
-Thiaⁿ hō͘ hó-sè, goán sī chhù-kak-chiáu
+Thiaⁿ ho͘ hó-sè, goán sī chhù-kak-chiáu
 
 M̄-sī chhù-chiáu-á, mā m̄-sī chhek-chiáu-á
 
